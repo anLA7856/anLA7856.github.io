@@ -1,2 +1,2 @@
 ### anLA7856
-blank is perfect, isn't it? 
+nothing is perfect, isn't it? 
